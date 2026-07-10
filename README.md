@@ -3,7 +3,7 @@
 Please iwec at times. My mood can go from 0-100 very fast. 
 
 
-Doubles PLEASE feel free to int!! I love seeing others who feel the same!!
+Doubles PLEASE feel free to int!! 
 
 
 <img width="500" height="=500" alt="smile-bouncing-smile" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/c21e102555e4c8c680bb3a3825117d958bcb1fba/smile-bouncing-smile.gif" />
