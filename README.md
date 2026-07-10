@@ -6,4 +6,9 @@ Please iwec at times. My mood can go from 0-100 very fast.
 Doubles PLEASE feel free to int!! 
 
 
+
+
+Hi Remmine!! VVV ^_^
+<img width="1002" height="=1128" alt="Untitled28_20260710004022" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/61f5e548e1ff91e93d13544f12e164bbf798eab5/Untitled28_20260710004022.webp" />
+
 <img width="500" height="=500" alt="smile-bouncing-smile" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/c21e102555e4c8c680bb3a3825117d958bcb1fba/smile-bouncing-smile.gif" />
