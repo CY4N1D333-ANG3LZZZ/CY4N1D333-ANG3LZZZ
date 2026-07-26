@@ -12,11 +12,11 @@ All art is by me.
 
 
 
-<img width="" height="" alt="1000000843%20" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/1000000843%20(1).png" />
+<img width="800" height="800" alt="1000000843%20" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/1000000843%20(1).png" />
 
-<img width="1300" height="1500" alt="1000001155" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/1000001155.png" />
+<img width="800" height="800" alt="1000001155" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/1000001155.png" />
 
-<img width="1300" height="1500" alt="20260725_141532" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/20260725_141532.jpg" />
+<img width="800" height="800" alt="20260725_141532" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/20260725_141532.jpg" />
 
 <img width="1250" height="1225" alt="6a6553e6b7436-Po44v7EkYR8Ac8zH" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/bdd2e51b7813a67615197272a17b0e50d75a1400/6a6553e6b7436-Po44v7EkYR8Ac8zH%20(1).png" />
 
