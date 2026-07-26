@@ -1,4 +1,4 @@
-<img width="550" height="775" alt="verity-thatmob" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/verity-thatmob.gif" />
+<img width="225" height="550" alt="verity-thatmob" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/verity-thatmob.gif" />
 
 <img width="1500" height="1700" alt="G_8Q2K7WAAAKJ3J" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/G_8Q2K7WAAAKJ3J.jpg" />
 
