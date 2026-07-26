@@ -12,7 +12,7 @@ All art is by me.
 
 
 
-<img width="1300" height="1500" alt="1000000843%20" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/1000000843%20(1).png" />
+<img width="" height="" alt="1000000843%20" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/1000000843%20(1).png" />
 
 <img width="1300" height="1500" alt="1000001155" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/1000001155.png" />
 
