@@ -19,7 +19,7 @@ All art is by me.
  
 <img width="700" height="700" alt="1785109599092" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/c0958182e51b2efd6446737969480bc6b736640c/1785109599092.png" /> 
 
-<img width="700" height="700" alt="1785109599092" src="" />
+<img width="700" height="700" alt="Draw%20ur%20oc's!!!" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/261d3a005d71b04281e9be874b22b0f5780d7c2b/Draw%20ur%20oc's!!!.png" />
 
 <img width="500" height="500" alt="1000000843%20" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/1000000843%20(1).png" />
 
