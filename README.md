@@ -4,12 +4,9 @@ I would like for people under 16 to iwc or not interact, as I make crude jokes w
 Thanks for anyone who took the time to read this. ^_^
 
 
-<img width="225" height="550" alt="verity-thatmob" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/verity-thatmob.gif" />
-
 <img width="225" height="550" alt="G_8Q2K7WAAAKJ3J" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/55728aed25d0ba128f097fd69f119cf8c841eefa/G_8Q2K7WAAAKJ3J.jpg" />
 
-<img width="500" height="=500" alt="smile-bouncing-smile" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/c21e102555e4c8c680bb3a3825117d958bcb1fba/smile-bouncing-smile.gif" />
- 
+
  
  
 All art is by me.
