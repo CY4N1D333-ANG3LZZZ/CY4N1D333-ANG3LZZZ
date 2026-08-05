@@ -11,7 +11,7 @@ Thanks for anyone who took the time to read this. ^_^
  
 All art is by me.
  
-<img width="719" height="1194" alt="Untitled8_20260805000648" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/2efa62941b1fddc59209fe075bff032ebe746ce3/Untitled8_20260805000648.png" />
+<img width="539.25" height="895.5" alt="Untitled8_20260805000648" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/2efa62941b1fddc59209fe075bff032ebe746ce3/Untitled8_20260805000648.png" />
 
 
 <img width="700" height="700" alt="Draw%20ur%20oc's!!!" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/261d3a005d71b04281e9be874b22b0f5780d7c2b/Draw%20ur%20oc's!!!.png" />
