@@ -1,4 +1,5 @@
 eyah danys world fandom DNI for the love of god 
+Also DNI dni dni DNIIIII if you are friends with FinnFxnn, this excludes one person and one person only. Justttt LEAVE ME ALONNEEEEEE and stop watching me and i'll be happy. I'm so fucking mad at you u wouldn't understand lmao. Piss off.
 
 <img width="800" height="800" alt="CyanideTheAngel-1785953965637" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/a3cf3c81716265fc23dced056c57226bef0b3a5e/CyanideTheAngel-1785953965637.png" />
 my art.
