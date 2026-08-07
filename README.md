@@ -6,9 +6,11 @@ Commissions:
 
 Please Add cy4n1d3._.ang3lz._. on discord so we can discuss further about what you'd like.
 
+example, ill add more once I do more. This was a 6 dollar commission I did for someone.
 
 
 
+<img width="700" height="700" alt="Untitled9_20260806015035" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/a40def0d538bb90419051e1d23771e0a2bebd383/Untitled9_20260806015035.png" />
 
 
 
