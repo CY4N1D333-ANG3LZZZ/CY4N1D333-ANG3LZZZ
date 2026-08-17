@@ -6,8 +6,10 @@
 my art.
 
 
+<img width="650" height="650" alt="20260817_050200" src="https://github.com/CY4N1D333-ANG3LZZZ/uhhhhh/blob/7262c56b008e97a5fe6dda4729cbfa9155e29f88/20260817_050200.jpg" />
 
-
+Blue boy is Mochi 🩵 fat green one in the background is Wasabi 💚 
+I love them both soo much, my lil chud birds, very loud guys
 
 
 
